@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Saimurali3
 - 👀 I’m interested in backlinking our online automotive news webpages on www.carzindagi.com 
-- 🌱 I’m currently learning SEO & digital marketing
+- 🌱 I’m currently Technical writer, Blogger, Affiliate Marketer, Digital Transformer, Digital Marketer
 - 💞️ I’m looking to collaborate on Backlinking
 - 📫 How to reach me saimuralirs@gmail.com
 - 😄 Pronouns: He/Him
